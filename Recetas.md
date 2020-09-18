@@ -1,4 +1,4 @@
-# Receta Hamburguesa de BBQ
+# [Receta Hamburguesa de BBQ](https://canalcocina.es/receta/hamburguesa-bbq-con-bacon-y-cebolla-caramelizada)
 ## Ingredientes
 * **250 gr Carne picada mixta ternera y cerdo**
 * **3 cucharadas de salsa barbacoa**
