@@ -12,7 +12,7 @@
 * **Aceite de oliva virgen extra (AOVE)**
 * **sal, pimienta y cebolla en polvo**
 
-## Preparación
+### Preparación
 * Empezamos preparando la masa de la hamburguesa, mezclando en un bol la carne picada junto con las especias (sal, pimienta y la cebolla en polvo) al gusto, el huevo batido y la salsa barbacoa. Tapamos con film y dejamos reposar en el frigorífico hasta su uso.
 * Doramos el bacon ahumado en una sartén sin aceite, hasta conseguir queden crujientes. Escurrir la grasa en un papel absorbente y reservar.
 * Dividimos la masa de la hamburguesa en dos partes. Las formamos y moldeamos con las manos o directamente en la sartén con un poco de AOVE, con ayuda de un tenedor. Cuando estén doradas por un lado, les damos la vuelta.
