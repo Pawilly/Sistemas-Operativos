@@ -30,6 +30,6 @@
 * **Queso parmesano**  
 ## Preparación
 * Cocer la coliflor durante 10 minutos.
-Meter en una picadora la coliflor cocida y la cebolleta.
-Añadir el huevo, el pan rallado y el queso, y mezclar bien hasta formar una masa.
-Hacer bolitas con la masa y hornear a 180º C durante 15 minutos.
+* Meter en una picadora la coliflor cocida y la cebolleta.
+* Añadir el huevo, el pan rallado y el queso, y mezclar bien hasta formar una masa.
+* Hacer bolitas con la masa y hornear a 180º C durante 15 minutos.
