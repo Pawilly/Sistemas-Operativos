@@ -20,3 +20,16 @@
 * A continuación la hamburguesa, el queso y el bacon. Para finalizar con un poco de cebolla caramelizada por encima y terminamos colocando la parte superior del pan.
 
 ![Hamburguesa BBQ](https://canalcocina.es/medias/publicuploads/2016/08/07/159766/54088503657a78d7ddb83c2.02624190.jpg)
+    
+# [Rollitos de pollo con queso](https://genial.guru/creacion-recetas/10-recetas-faciles-para-realizar-con-5-ingredientes-o-menos-764010/)
+## Ingredientes
+* **1 coliflor**
+* **1 cebolleta**
+* **1 huevo grande**
+* **300 g. pan rallado**
+* **Queso parmesano**  
+## Preparación
+* Cocer la coliflor durante 10 minutos.
+Meter en una picadora la coliflor cocida y la cebolleta.
+Añadir el huevo, el pan rallado y el queso, y mezclar bien hasta formar una masa.
+Hacer bolitas con la masa y hornear a 180º C durante 15 minutos.
